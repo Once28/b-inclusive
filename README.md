@@ -1,2 +1,4 @@
 # b-inclusive
 Discover and support Black-owned stores. Empower entrepreneurs and promote economic equality. Shop now! #WINFO2021Hackathon
+
+Welcome to our platform dedicated to celebrating and promoting Black-owned stores. In support of the WINFO 2021 Hackathon, we've created this space to highlight and uplift businesses owned by Black entrepreneurs. Our mission is to provide a platform where you can discover a wide range of products and services offered by Black-owned stores in your community and beyond. By patronizing these businesses, you're not only supporting local economies but also contributing to the empowerment and success of Black entrepreneurs. Join us in celebrating diversity, fostering economic equality, and making a positive impact in the world of commerce. Explore and shop from these incredible Black-owned businesses today!
